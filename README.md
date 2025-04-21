@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @EddieFather
+- 👋 Hi, I’m @EddieLiu
 - 👀 I’m student  :)
 - 🌱 I’m currently learning C++ python  :|
-- 📫 1772030911@qq.com
+- 📫 a1772030911@gmail.com
 - 🎸 Love music  :)
 - 🧧 Business cooperation:qq 2685117836
 - 😭😭😭😡😡😡🥵🥵🥵😅😅😅
